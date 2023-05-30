@@ -1,1 +1,1 @@
-# Latin-Notes
+# Latin Notes
